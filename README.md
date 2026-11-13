@@ -22,6 +22,6 @@
 
 ## Let's connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/emmanuel-tjabel/)
-- 📧 abelemmanuel2018@gmail.com
+- 📧 tjabelworks@gmail.com
 
 *Have a process that eats your time? Message me and I'll tell you what can be automated.*
